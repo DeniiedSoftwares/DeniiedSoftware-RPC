@@ -1,2 +1,2 @@
 # DeniiedSoftware-RPC
-Advertise our software with RPC
+Give me free advertising yes thank you
